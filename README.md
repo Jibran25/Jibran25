@@ -1,3 +1,5 @@
+[![An image of @jibran25's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/jibran25)](https://holopin.io/@jibran25)
+|
 ### Hi there 👋
 
 <!--
